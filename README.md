@@ -2,6 +2,4 @@
 
 - 👋 Hola, soy Alex.
 - 👀 Estoy Aprendiendo a Programar!
-- 💞️ Discord: Alextutosc#6214
-
-Nex naco
+- 💞️ Discord: ̶A̶l̶e̶x̶#1212
